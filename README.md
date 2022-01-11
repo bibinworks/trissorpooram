@@ -1,2 +1,0 @@
-# trissorpooram
-trissorpooram.co.uk
